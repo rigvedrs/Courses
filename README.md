@@ -1,2 +1,2 @@
 # Courses
-Some of the courses I had completed and didn't want to pay just for their certificate
+Some of the courses I didn’t buy but completed learning it in detail
